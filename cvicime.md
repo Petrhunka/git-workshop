@@ -1,1 +1,5 @@
 Necvičiíe...
+
+
+
+Uprava souboru:
